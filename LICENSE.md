@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with vip Polymarket Strategy | sentiment-analysis + volatility-detection, the #1 strategy. Includes sentiment-analysis and volatility-detection for
 
 
 
